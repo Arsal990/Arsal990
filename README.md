@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Arsal099
+- 👀 I’m interested in creating a digital ruppee fiat payment prjocet through web3 system. Suggestions and help in this project will be appreciated
+- I am looking for people interested in the project...
+- 📫 Contact me on Email Arsi478@gmail.com for more details
